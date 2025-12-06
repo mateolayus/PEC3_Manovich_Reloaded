@@ -22,7 +22,9 @@ Personalmente, Uncharted me enseñó que los videojuegos pueden ser mucho más q
 En cuanto a recursos, se pueden encontrar trailers oficiales, artículos y análisis que muestran cómo la serie integra diferentes medios. Añado a continuación un video muy interesante donde se explica de una forma didáctica cómo Uncharted creó una aventura cinemática única: https://youtu.be/IfvVfLQMHQ8?si=9vCrGlxEZlUXSObB.
 En resumen, Uncharted es un ejemplo de cómo la hibridación permite fusionar medios y experiencias, transformando la forma en que percibimos historias y entretenimiento. Para mí y mi padre, ha sido una aventura compartida que va más allá de la pantalla: nos enseñó que la combinación de cine, software y narrativa no solo puede crear mundos digitales impresionantes, sino también momentos reales que permanecen con nosotros para siempre.
 
+
 ![58c34218459a4542288b4704](https://github.com/user-attachments/assets/b47f275c-9ace-411c-b9a2-635e6993dae7)
+
 
 
 ## Re-descubriendo la hibridación: Caso 2 - LEGO
